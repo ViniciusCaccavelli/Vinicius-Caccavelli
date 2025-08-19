@@ -39,6 +39,7 @@ Estou construindo meu portfólio com projetos práticos e focados em resultados.
 
 ---
 
+
 > “Pequenos dados, grandes impérios.” 🚀
 
 
